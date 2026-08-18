@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MAGF680228HGRRRR09
+MAGF680228HGRRRR09
